@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JacksterB2904
+- 👀 I’m interested in music and coding
+- 🌱 I’m currently learning python and C++
+- 💞️ I’m looking to collaborate on anything easy atm
+- 📫 How to reach me...idktbh, send a message on here if thats possible :)
